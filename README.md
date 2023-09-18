@@ -1,0 +1,1 @@
+# LUTA_HQ_CLASS
